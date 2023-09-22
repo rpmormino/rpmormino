@@ -1,5 +1,4 @@
 ### Hi there 👋
-
 😄 Rose Mormino ... she/her/hers
 🌱 I’m currently learning UX/UI design and programming basics!
 📫 How to reach me: rpmormino@gmail.com
